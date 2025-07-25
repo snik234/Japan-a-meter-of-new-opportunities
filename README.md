@@ -1,2 +1,2 @@
-# Japan-a-meter-of-new-opportunities
+# Japan
 Японія — це гармонія традицій і технологій.
